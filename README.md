@@ -2,7 +2,7 @@
 - 👀 I’m interested in Front End
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on, let me know!
-- 📫 How to reach me @elicreative.art
+- 📫 How to reach me <a href="https://www.instagram.com/eli.creativeart/"> INSTA
 - 😄 Pronouns: He, Him
 - ⚡ Fun fact: i like eggnoge... so much!
 
